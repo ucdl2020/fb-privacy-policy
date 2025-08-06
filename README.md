@@ -1,1 +1,1 @@
-# fb-privacy-policy
+# social-media-privacy-policy
